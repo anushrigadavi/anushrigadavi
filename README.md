@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @anushrigadavi
-- 👀 I’m interested in ... coding
+- 👀 I’m interested in ... Learning new things 
 - 🌱 I’m currently learning ... election and telecommunications engineering
 - 💞️ I’m looking to collaborate on ...my work
 - 📫 How to reach me ...
